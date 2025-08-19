@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JishaanSayyed
-- I am a Student doing MCA from Thakur College
+- I am a Student studying MSc in Artificial Intelligence from Manchester Metropolitan University
 - 📫 How to reach me 
       Linkedin - www.linkedin.com/in/Jishaan-sayyed
       
